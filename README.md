@@ -5,5 +5,5 @@
 - I'm probably sleeping 🛌, finishing some assignments 📚, eating 🍽️, or doing some random thing ❓. 
 
 - I like fishing 🎣
-- Arsenal F.C. Fan ⚽️
+- Arsenal F.C. Fan ⚽️👑
 
